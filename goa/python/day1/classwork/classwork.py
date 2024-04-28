@@ -1,1 +1,0 @@
-#nika maswavlebeli gvelaparakeboda goaze
